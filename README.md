@@ -174,3 +174,8 @@ AI & Cybersecurity Engineer (in progress)
 ## ⭐ If you found this useful
 
 Give this repo a ⭐ and connect with me!
+
+<img width="1257" height="634" alt="Screenshot 2026-04-26 121647" src="https://github.com/user-attachments/assets/9f647387-a24d-4f31-9ad7-8aac7b4f898d" />
+
+<img width="939" height="551" alt="Screenshot 2026-04-26 121620" src="https://github.com/user-attachments/assets/f8984e88-3662-40d8-8525-107a60c742e9" />
+
